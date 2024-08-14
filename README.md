@@ -28,8 +28,9 @@
 ## 𒋨🏴‍☠️⃝𝘼𝘾𝙀☠️𝘽𝙊𝙏⃝𒋨🉑-OWNERS,
 
 
-## Special Thanks to 🏴‍☠️⃝🅐ϲԑ 𝚔𝖎𝐫қ𖤍🔥 
-* <a  src="https://telegra.ph/file/c9f1fbd5b78d902762e5f.jpg" width=80 height=80></a> 
+## Special Thanks to 
+🏴‍☠️⃝🅐ϲԑ 𝚔𝖎𝐫қ𖤍🔥 
+* <a  src="https://telegra.ph/file/c9f1fbd5b78d902762e5f.jpg" width=80 height=80></a>* 
 ---
 
 <br>
@@ -43,6 +44,6 @@
 
 
 
-Release date:- 2024.06.28
+Release date:- 2024.08.13
 <br>
 Latest updated date:- NO UPDATE
