@@ -30,7 +30,7 @@
 
 ## Special Thanks to 
 🏴‍☠️⃝🅐ϲԑ 𝚔𝖎𝐫қ𖤍🔥 
-* <a  src="https://telegra.ph/file/c9f1fbd5b78d902762e5f.jpg" width=80 height=80></a>* 
+* <a  src="https://telegra.ph/file/c9f1fbd5b78d902762e5f.jpg" width=80 height=80></a>
 ---
 
 <br>
