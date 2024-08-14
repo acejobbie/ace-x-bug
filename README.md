@@ -5,7 +5,7 @@
 <br>
 
 
-[𝗔𝐂𝐄_𝗝𝐎𝐁𝐁𝐈𝐄✞︎ OFFICIAL](https://https://t.me/+njMXs03qRLQ3ZmNk?si=NsWb47_f3g5t7hoH)
+[𝗔𝐂𝐄_𝗝𝐎𝐁𝐁𝐈𝐄 OFFICIAL](https://https://t.me/+njMXs03qRLQ3ZmNk?si=NsWb47_f3g5t7hoH)
 <br>
 
   
@@ -27,7 +27,7 @@
 ## 𒋨🏴‍☠️⃝𝘼𝘾𝙀☠️𝘽𝙊𝙏⃝𒋨🉑-OWNERS,
 
 
-## Special Thanks to
+## Special Thanks to 🏴‍☠️⃝🅐ϲԑ 𝚔𝖎𝐫қ𖤍🔥 
 * <a  src="https://telegra.ph/file/c9f1fbd5b78d902762e5f.jpg" width=80 height=80></a> 
 ---
 
